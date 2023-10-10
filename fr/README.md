@@ -1,5 +1,5 @@
 Je suis en paix  
-Je suis puissant  
+Je suis puissant(e)  
 J'ai de la valeur  
 Je suis efficace  
 Je suis créatif(ve)  
