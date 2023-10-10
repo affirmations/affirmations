@@ -1,15 +1,15 @@
-I am peaceful  
-I am powerful    
-I am worthy  
-I am efficient  
-I am creative  
-I am popular  
-I am wise  
-I am beautiful  
-I am worthy    
-I am happy  
-I am a miracle maker  
-I am helpful  
-I am worthy  
-I have many friends  
-I am filled with love  
+私は平和だ  
+私は力強い  
+私は価値がある  
+私は効率的である  
+私は創造的である  
+私は人気がある  
+私は賢い  
+私は美しい  
+私は価値がある  
+私は幸せ  
+私は奇跡を起こす人  
+私は役に立つ  
+私は価値がある  
+私は友達が多い  
+私は愛で満たされている  
